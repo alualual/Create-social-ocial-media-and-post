@@ -1,1 +1,1 @@
-# Create-social-ocial-media-and-post
+# Create-social-media-and-post
